@@ -2,69 +2,36 @@
 
 ### Ingredientes
 
-#### Lasanha
+#### Molho 
 
-- 500 g de massa para lasanha
+2 colheres de sopa de óleo
 
-#### Molho Bolonhesa
+600 gramas de carne moída
 
-- 2 colheres (sopa) de óleo
-- 500 g de carne moída
-- 1 cebola pequena picada
-- 1 cenoura ralada no ralo fino
-- meia xícara (chá) de salsão picado
-- 1 lata de polpa de tomate
-- 2 tabletes de MAGGI® Caldo Carne
-- 1 xícara (chá) de água quente
+1 Cubo de Caldo Knorr Carne 
 
-#### Molho Branco
+1 xícara de chá de água fervente
 
-- 2 colheres (sopa) de manteiga
-- 2 e meia colheres (sopa) de farinha de trigo
-- 500 ml de Leite Líquido NINHO Forti+ Integral
-- 1 pitada de noz-moscada
-- 1 pitada de sal
-- 1 pitada de pimenta-do-reino
-- 1 caixinha de NESTLÉ® Creme de Leite
+2 embalagens de molho de tomate (680g)
 
-#### Montagem
+1 colher de sopa de salsinha fresca picada
 
-- 250 g de queijo mozarela fatiado
-- 2 colheres (sopa) de queijo parmesão ralado
+#### Para montar
 
-### Modo de preparo
+500 gramas de massa para lasanha
 
-#### Lasanha
+350 gramas de presunto sem capa de gordura em fatias finas
 
-Cozinhe a massa de acordo com as instruções da embalagem e coloque em um recipiente com água fria até o momento de montar.
+350 gramas de queijo muçarela em fatias finas
 
-#### Molho Bolonhesa
+4 colheres de sopa de queijo parmesão ralado
 
-Em uma panela, aqueça o óleo e refogue a carne. Junte a cebola, a cenoura, o salsão e deixe refogar até murchar.
+#### Modo de Preparo
 
-Acrescente a polpa de tomate e o tablete de MAGGI Caldo, dissolvido em na água quente.
-
-Deixe cozinhar por cerca de 10 minutos, ou até apurar o molho. Reserve.
-
-#### Molho Branco
-
-Em uma panela, derreta a manteiga, junte a farinha de trigo e deixe dourar.
-
-Aos poucos junte o Leite NINHO, mexendo sempre para não formar grumos. Acrescente a noz moscada, o sal, e a pimenta-do-reino.
-
-Quando adquirir consistência cremosa, retire do fogo, acrescente o NESTLÉ Creme de Leite, misture bem e reserve.
-
-#### Montagem
-
-Em um recipiente refratário (20 x 30 cm), coloque uma porção de molho bolonhesa; cubra com uma camada de massa, e uma porção de molho branco e coloque o queijo mozarela. Repita as camadas até a borda do recipiente.
-
-Finalize com o queijo parmesão ralado e leve ao forno alto (220°C), preaquecido, por cerca de 20 minutos ou até dourar. Sirva.
-
-
-
-
-
-
-
-
-
+1. Em uma panela grande, aqueça o óleo e refogue a carne até perder a cor avermelhada.
+2. Dissolva o cubo de Caldo KNORR Carne na água fervente e acrescente ao refogado. Cozinhe por 10 minutos, ou até secar o líquido.
+3. Junte o molho de tomate e cozinhe em fogo baixo por mais 10 minutos. Retire do fogo, adicione a salsinha e reserve.
+4. Preaqueça o forno em temperatura média (180º C).
+5. Em um refratário retangular grande (35 x 22 cm), monte camadas alternadas de molho, massa, presunto e muçarela. Finalize com o molho e polvilhe o queijo ralado.
+6. Cubra com papel-alumínio e leve ao forno por 20 minutos. Retire o papel e leve novamente ao forno por mais 15 minutos.
+7. Retire do forno e sirva em seguida.
